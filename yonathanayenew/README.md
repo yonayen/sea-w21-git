@@ -1,3 +1,3 @@
-Funny Funeral Joke image
+Funerals and jokes don't mix, but...
 
-http://buymelaughs.com/wp-content/uploads/2013/12/Funny-memes-3.jpg
+![](http://buymelaughs.com/wp-content/uploads/2013/12/Funny-memes-3.jpg)
